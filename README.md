@@ -1,0 +1,1 @@
+# kult_strategia
